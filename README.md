@@ -1,1 +1,0 @@
-# magalu-recicla-tech
